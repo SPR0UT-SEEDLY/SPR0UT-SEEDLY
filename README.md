@@ -4,4 +4,4 @@
 
 Moonvision int ━     Dandys world fandom iwc—      █           —        c*h comf — °。
 
-█    .     =   Cosmo fictkin / irl.        █    i dont trust easily , or ever . 
+█    .     =   Cosmo fictkin / irl.        █    i dont trust easily , or ever . only my famliy
